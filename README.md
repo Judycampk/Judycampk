@@ -1,5 +1,6 @@
 
-# ![Atardecer Fotografía Tumblr Banner](https://user-images.githubusercontent.com/77417191/158486618-c7bd160a-dca6-40a9-9fe7-a4056d31b4b7.png)
+# ![Atardecer Fotografía Banner para Tumblr (1)](https://user-images.githubusercontent.com/77417191/158488212-5465dd08-f86d-4795-971b-299655fe1752.png)
+
 
 # Hi, I'm Judith! 😊
 
